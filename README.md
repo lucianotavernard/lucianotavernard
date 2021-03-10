@@ -1,6 +1,6 @@
 # Hey, I'm Luciano! 👋 
 
-Evolving a little bit day by day and always studying new things. Passionate about technology and the entire web ecosystem.
+🚀 Evolving a little bit day by day and always studying new things. Passionate about technology and the entire web ecosystem.
 
 - 🔭 I’m currently working at **ViverDeBlog**
 - 🌱 I'm currently learning a little bit of everything 🤣
